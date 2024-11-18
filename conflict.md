@@ -1,1 +1,1 @@
-See on konfliktne fail. Muuda seda hoolikalt. Tere tere.
+Muutsin seda rida totaalselt.
