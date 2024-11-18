@@ -1,1 +1,1 @@
-Muutsin seda rida totaalselt.
+Muudetud.
