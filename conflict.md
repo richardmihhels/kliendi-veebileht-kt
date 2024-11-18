@@ -1,1 +1,1 @@
-See on konfliktne fail. Muuda seda hoolikalt. Muudetud tekst on hoolikalt tehtud.
+See on konfliktne fail. Muuda seda hoolikalt. Tere tere.
